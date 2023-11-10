@@ -1,0 +1,1 @@
+Just a folder for notes on job applications and interviews.
